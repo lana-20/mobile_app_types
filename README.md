@@ -1,0 +1,13 @@
+Read here [Mobile App Types](https://lana-20.github.io/mobile_app_types/)
+
+![1](https://github.com/user-attachments/assets/c1999c80-6bad-4b2b-a683-2df0433962bd)
+![2](https://github.com/user-attachments/assets/33ec43e2-791e-4327-b1a3-793b6e2c020a)
+![3](https://github.com/user-attachments/assets/28fbe8d9-f169-4b7f-a026-f1e33a5189af)
+![4](https://github.com/user-attachments/assets/63d41579-cdda-4b4c-aea5-754db2b00b57)
+![5](https://github.com/user-attachments/assets/855be6d7-9a26-40e3-aabd-e95c814811f9)
+![6](https://github.com/user-attachments/assets/9397665b-de77-4932-a84b-93886d29927f)
+![7](https://github.com/user-attachments/assets/f18048c8-2541-49cf-bff9-db58c5b9dc43)
+![8](https://github.com/user-attachments/assets/33565c59-3623-47e4-86d2-5f47da7e7cbc)
+![9](https://github.com/user-attachments/assets/172769aa-63a5-4d12-b9f5-5041ade44780)
+![10](https://github.com/user-attachments/assets/f6c2eb46-c560-4531-abbb-e5a83f8ed5a0)
+![11](https://github.com/user-attachments/assets/a302f1b5-819c-4d8a-ad63-57234522345b)
